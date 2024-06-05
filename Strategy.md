@@ -1,0 +1,3 @@
+Strategy is the planning and the execution that leads to the fulfilment of the goals set in grand strategy. If the goal of a war is to capture an island with three cities on it then the strategy decides which order to take the cities in and what sort of force will be required.
+ 
+**Grand strategy** is political. It sets the long term and short term goals both in and out of war. It decides who to attack when and what the goals of a war are to be.

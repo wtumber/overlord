@@ -1,0 +1,1 @@
+**Logistics** is all about making sure that the troops are where they are meant to be before the fighting starts and that they have all the support (normally supplies, but can include other things) that are required.

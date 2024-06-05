@@ -1,0 +1,1 @@
+A theatre of operations is defined as: a geographical area, or more precisely a space, defined by the military-strategic authority, which includes and surrounds the area delegated to a joint force commander (termed the joint operations area), within which they conduct operations.
